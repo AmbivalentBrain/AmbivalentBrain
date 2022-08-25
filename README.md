@@ -1,5 +1,10 @@
-### Hi there 👋
+### Yo
 
+I'm pretty bad with computers so any help is appreciated. 
+
+Working and school keeps me busy.
+
+In my free time I like to watch anime. 
 <!--
 **AmbivalentBrain/AmbivalentBrain** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
